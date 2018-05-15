@@ -12,9 +12,13 @@ I am a small time streamer from Missouri who normally streams in my free time wh
 ## About Reshayshay:
 
 Name: Rashaun
+
 Age: College age
+
 Height: Five foot nine
+
 Weight: Unknown
+
 State: Missouri
 
 ### What does Reshayshay stream?
